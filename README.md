@@ -1,1 +1,0 @@
-# 240021TadanobuUsami.github.io
